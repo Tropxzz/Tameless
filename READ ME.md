@@ -12,3 +12,7 @@ if ur a skiddy skid skid
 and ur tryna steal this feck u
 
 Why just why ofc this is obfuscated but y
+
+# get my executor mythos
+
+https://mythoss.netlify.app/
